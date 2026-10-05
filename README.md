@@ -1,0 +1,2 @@
+# premium-mold-make-001-mold-making-silicone-pour-cr
+Tired of scribbling silicone ratios on sticky notes and forgetting when your last pour is ready to demold? Your craft lab deserves a brain that never forgets.  This Notion template transforms your mold-making workflow into a single, searchable command center. No more lost formulas, missed cure windows, or duplicate material orders — just a clean sy
